@@ -1,15 +1,15 @@
-Further to your request for additional detail, I provide below a more structured account of the conversation as I recall it.
+Further to your request for additional detail, I provide below a more structured account of the informal discussion that took place on the second day of induction.
 
-The discussion took place during a brief, informal one-on-one interaction on the morning of the second day of induction. The conversation was conversational rather than formal and arose while discussing onboarding experiences more generally.
+The interaction occurred during a brief one-on-one exchange in the morning. The discussion was informal in nature and not part of a structured session. The conversation developed organically while speaking generally about onboarding experiences and professional backgrounds.
 
-The exchange began with general comparisons of induction processes across organisations. In that context, I referenced aspects of previous onboarding experiences I had encountered elsewhere and made comparative remarks regarding presentation style and overall feel. These were shared as personal reflections rather than as criticism of RMB.
+During this exchange, I referenced prior induction experiences I have had in other organisations and commented on differences in presentation style and overall feel. These remarks were shared as personal reflections and comparisons based on my own experience, rather than as criticism of RMB or its processes.
 
-During the same exchange, I made a practical observation regarding the location of certain facilities in relation to the induction venue. This was not raised as a complaint but as an informal comment.
+I also made a practical observation regarding the proximity of certain facilities in relation to the induction venue. This was expressed conversationally and not raised as a complaint or grievance.
 
-The conversation also touched on leadership experience and how career progression can differ across institutions and markets. I spoke broadly about differences I have observed between regions in terms of tenure and progression pathways. I did not make any factual allegations regarding wrongdoing, misconduct, or illegitimacy of any individual or leadership structure.
+The discussion then broadened to leadership experience and how career progression can vary across institutions and markets. In that context, I spoke generally about differences I have observed in tenure and progression across regions. My comments were high-level and comparative in nature. I did not make any factual allegations of wrongdoing or misconduct, nor did I question the legitimacy of any individual’s appointment.
 
-At no stage did I accuse any individual of impropriety, dishonesty, or lack of qualification. My remarks were general in nature and conversational rather than evaluative.
+The exchange remained informal throughout. There was no intention to disparage the organisation, its leadership, or its governance structures.
 
-In hindsight, I recognise that early informal commentary can be interpreted differently than intended. There was no intention to disparage the organisation or its leadership.
+Upon reflection, I recognise that informal comparative remarks, particularly early in one’s tenure, may be interpreted differently than intended. That was not my purpose.
 
-This reflects my honest recollection of the exchange.
+This statement reflects my honest recollection of the conversation and its context.
